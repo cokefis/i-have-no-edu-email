@@ -1,1 +1,1 @@
-# i-have-no-edu-mail
+# i-have-no-edu-email
